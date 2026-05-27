@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Keep watching & read all my repos regularly and keep forking... Keep hit star icons for the repos you like much and helps you :)
+Keep watching & read all my repos regularly and keep forking... Keep hit star icons for the repos you like much that helps you :)
 
 ## My Principles
 
