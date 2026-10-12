@@ -26,3 +26,7 @@ I don’t believe in having “turfs” or “areas of influence.” Empire buil
 
 ## Have fun solving problems
 No matter what project I work on, I will find what is fun about it. That doesn’t mean that I will squeeze entertainment out of a boring project. Instead, I focus on what is a puzzle to solve about it. Every problem is, in fact, a hidden opportunity, and the process to find that opportunity is fun.
+
+
+### Certifications
+![Carousel](https://credly-readme-stats.onrender.com/api/overview?username=yogananda-muthaiah)
